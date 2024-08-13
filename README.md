@@ -1,6 +1,6 @@
 - Opaaa! Sou Brun0!
 - Eu estou interessado na àrea de computação e planejo fazer projetos grandes e incriveis, como jogos e sites
-- Atualmente estou aprendendo ainda essa área
+- Atualmente estou aprendendo sobre a linguagem de programação
 - Estou procurando colaborar com Lógica computacional
 - Como chegar a mim: Email ou Discord
 - Fato: Daqui alguns anos verá meu nome crescer!
